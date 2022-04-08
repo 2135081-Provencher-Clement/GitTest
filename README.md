@@ -19,3 +19,6 @@ Ajouter le bœuf haché. Cuire jusqu’à ce qu’il ne soit plus rose, en le d�
 À l’aide d’une spatule en silicone, presser fermement le bœuf au fond de la cocotte de manière à créer un étage bien droit.
 Verser le maïs en crème, l’étaler, puis verser le maïs en grains égoutté. Lisser le tout pour créer un second étage bien droit.
 Couvrir toute la surface avec la purée de pommes de terre réservée, lisser, saupoudrer de paprika, puis enfourner de 30 à 35 minutes, ou jusqu’à ce que la purée soit joliment colorée. Laisser tiédir quelques minutes avant de servir.
+
+
+sdajfjabsdhvbbyaoudyouvybouy
