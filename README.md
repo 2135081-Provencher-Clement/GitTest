@@ -21,6 +21,7 @@ Verser le maïs en crème, l’étaler, puis verser le maïs en grains égoutté
 Couvrir toute la surface avec la purée de pommes de terre réservée, lisser, saupoudrer de paprika, puis enfourner de 30 à 35 minutes, ou jusqu’à ce que la purée soit joliment colorée. Laisser tiédir quelques minutes avant de servir.
 </important>
 
+<<<<<<< HEAD
 rsevrsegrwes
 qwegwerbfbrsbserv
 sdajfjabsdhvbbyaoudyouvybouy
@@ -43,3 +44,10 @@ sdajfjabsdhvbbyaoudyouvybouy
 
 
 dsafjbeanpjdjfbvn
+=======
+sdajfjabsdhvbbyaoudyouvybouy
+
+
+HEHEHAHA
+HEHEHAHAH
+>>>>>>> 424bc3fde562699d0dab8d9b56910de960f5b631
